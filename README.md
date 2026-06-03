@@ -206,7 +206,7 @@ Top Retention Action:          15% discount + 10% bill reduction → 57% success
 ## 👤 Author
 
 **Atla Mayank Rao**
-[LinkedIn](https://linkedin.com/in/mayank-rao) · [GitHub](https://github.com/mayank-rao) · mayankatla13@gmail.com
+[LinkedIn](https://www.linkedin.com/in/atla-mayank-rao-503441290/) · [GitHub](https://github.com/Mayankrao1309) · mayankatla13@gmail.com
 
 ---
 
